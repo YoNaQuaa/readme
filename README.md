@@ -1,15 +1,13 @@
-# <p align="center">![MOSHED-2021-7-17-14-54-36](https://cdn.discordapp.com/attachments/888009770898956288/891279932662112256/105d7f8edd79a4044bb0ac21feb24048.png)
+# <p align="center">![MOSHED-2021-7-17-14-54-36](https://cdn.discordapp.com/attachments/847535893208367174/891453903881764924/2cb46164c6602103e4447dd51413761a.png)
 
 <h1 align="center">👋</h1>
 <p align="center">
-  <b>Mohamed, 14y CyberSecurity Beginner</b><br>
+  <b>Mohamed, 14y HTML/CSS, Python and Cyber-Security</b><br>
   <br></br>
   
   # À propos de moi
 
 Mohamed Musaui, né le 02 février 2007. ( 14 ans )        
-
-véritable passionné de design et d'inforamatique depuis que je suis tout petit, envie de faire de la cyber sécutité mais je n'arrive pas à me renseigner pour savoir ou apprendre par quoi commencer etc ... Donc di vous pouvez m'aider mes MP/DM sont ouvert : 'NaQuaa#2316
 
 - 🔎 Contact Discord : 'NaQuaa#2316
 - 🔎 Contact Instagram : Soon
